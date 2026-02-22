@@ -1,0 +1,46 @@
+# SOMETIME'S – 夏のMagic
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+I feel, how time flies.
+部屋でTurn on なんてもういい
+I feel tight day by day
+I'm bored of this TV game
+目が覚めていくSun goes high
+ありのまま飛び出して
+部屋の中じゃ聞こえない
+合図が鳴ってる
+夏のせいか胸が踊り出す
+滑り出した汗も気にしない
+ほら気付いたら熱を帯びてる
+夏のMagicかかって火照っていく
+Oh baby, how time flies.
+君とChillin'なんて素敵
+I feel you day by day
+Until the sun sets もう少しだけ
+身を乗り出して Sun goes high
+ありのまま走り出す
+下手な唄じゃ解けない
+合図を待ってる
+光る海岸線、触れる手と手
+膨らんだ白い雲、青の向こう
+いつだって気付いたらとっくにFalling
+確かに聴こえた
+君のせいだ胸が騒ぎ出す
+濡れた肌から目を逸らして
+ほら気付いたら熱を帯びてる
+蕩そうな日々を夢見て
+I wanna kiss you tonight
+波の音が奏でるMelody
+近づいてくLike daylight
+夏のせいだ胸が踊り出す
+濡れて何度(いつ)もそこに落ちていく
+目と目が合うたび加速する
+勘違いのオンパレードで
+脈打つ鼓動感じて熱くなる
+君のせいだ胸が騒ぎ出す
+砂で描いた確かなGonna be with
+ありふれた恋の始まり
+夏のMagicかかって火照っていく
+```
